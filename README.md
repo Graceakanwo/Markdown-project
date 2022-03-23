@@ -10,4 +10,4 @@
     -INS
   - Grace
    -Oluwaseyi     
-   ![reliance](https://imgur.com/xBYxsPa)
+   ![fintech9](https://imgur.com/fQi9UZv.jpg)
