@@ -10,4 +10,6 @@
     -INS
   - Grace
    -Oluwaseyi     
-   ![reliance](https://imgur.com/xBYxsPa)
+   ![reliance](https://imgur.com/xBYxsPa.jpg)
+   ![Careerdemy pix](https://imgur.com/SbcjFgu.jpg)
+
